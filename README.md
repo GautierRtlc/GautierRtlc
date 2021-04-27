@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @GautierRtlc
+- 👀 I’m engineering student
